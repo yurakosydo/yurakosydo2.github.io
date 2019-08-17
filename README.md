@@ -1,0 +1,1 @@
+# yurakosydo2.github.io
